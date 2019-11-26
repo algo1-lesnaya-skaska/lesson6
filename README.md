@@ -2,7 +2,7 @@
 
 Scratch урок 6 
 
-
+https://yadi.sk/i/MXeRHtNysMpIOg
 
 Scratch 3  ссылка на загрузку : https://scratch.mit.edu/download
 
